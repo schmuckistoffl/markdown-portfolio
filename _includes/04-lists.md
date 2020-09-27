@@ -1,0 +1,5 @@
+- bouldering
+- music
+- welding
+- cooking
+- baking
